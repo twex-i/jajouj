@@ -1,4 +1,4 @@
-👋 Hi, I’m @jajouj
+👋 Hi, I’m @twex-i
 👀 I’m interested in astrophysics and programming
 
 <!---
